@@ -2,7 +2,7 @@
 
 olivenöl, zwiebeln + tabasco + sardellen ansimmern, alles vorher sehr klein schneiden
 
-sellerie in miniwürfel, auch hinzu
+sellerie (von der knolle) in miniwürfel, auch hinzu
 
 danach thunfish hinzugeben, hitze hoch
 
@@ -10,7 +10,7 @@ pfeffer, chilli-pulver, und tomatenmark hinzugeben, warten
 
 geschnittene paprikawürfel und mais hinzugeben, warten
 
-bei leichter hitze reduzieren, dann etwas mehl + pfeffer + zalz, paprikapulver, alles rühren
+bei leichter hitze reduzieren, dann etwas mehl + pfeffer + zalz, paprikapulver, rohrzucker, alles rühren
 
 ablöschen mit apfelessig + brühe und/oder wasser
 
